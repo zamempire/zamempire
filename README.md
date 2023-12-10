@@ -2,7 +2,7 @@
 
 hi guys im princezam totally the real one please trust me i am him.<sub> Disclamer . I am not actually him </sub>
 <br>Zam, it/they pronouns . Introj , Syshost
-<br> IDK HOW TO CODE! So i just use this to keep track of pre-existing projects and to link stuff to pt skins
+<br> IDK HOW TO CODE! So i just use this to keep track of pre-existing projects and to link stuff to pt skins. i'm trying to learn some stuff so i can make a vn of LSSMP ! or smth idk ^_^
 <br> self proclaimed [notorious grape thief](https://rentry.co/grapethief) btw. if you cared.
 
 [BOYCOTT DISCORD PLEASE](https://rentry.co/Lifesteal-SMP)
