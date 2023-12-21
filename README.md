@@ -1,5 +1,5 @@
 ![Goodra Pokémon TCG Sword _ Shield-Fusion Strike](https://github.com/zamempire/zamempire/assets/151917163/d64e9345-482e-4c3d-92fd-9ce92a9c9329)
-wgere did literally all fo the imgs on my rentry go Stop
+ok tgeyre all back wgt did that just. what.
 
 hi guys im princezam totally th
 e real one please trust me i am him.<sub> Disclamer . I am not actually him </sub>
