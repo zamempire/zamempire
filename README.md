@@ -10,4 +10,4 @@ e real one please trust me i am him.<sub> Disclamer . I am not actually him </su
 WHISPER TO INTERACT IF U ARE FROM PT! I will ignore u otherwise dawg
 <br> basic dni, troll skins dni as well pls </3
 
-lifesteal and namiverse enjoyer, and uhm. thats it ig. Clangen as well i kinda have a special interest in that rn
+fixated on lifesteal. and thats like it. also bandori and clangen
