@@ -8,6 +8,7 @@ e real one please trust me i am him.<sub> Disclamer . I am not actually him </su
 <br> self proclaimed [notorious grape thief](https://rentry.co/grapethief) btw. if you cared.
 
 WHISPER TO INTERACT IF U ARE FROM PT! I will ignore u otherwise dawg
+<br> im suuuper scared and afraid of everyone btw so im ognna be a little awkward if we int sorry :(( 
 <br> basic dni, troll skins dni as well pls </3
 
 fixated on lifesteal. and thats like it. also rhythm games and vocaloid i guess lalalalala
