@@ -4,7 +4,6 @@ AITA for abusing admin on a content creator SMP?
 hi guys im princezam totally th
 e real one please trust me i am him.<sub> Disclamer . I am not actually him </sub>
 <br>Zam, it/they pronouns . Introj , Syshost
-<br> self proclaimed [notorious grape thief](https://rentry.co/grapethief) btw. if you cared.
 
 WHISPER TO INTERACT IF U ARE FROM PT! I will ignore u otherwise dawg
 <br> im suuuper scared and afraid of everyone btw so im ognna be a little awkward if we int sorry :(( 
