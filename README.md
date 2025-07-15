@@ -8,7 +8,7 @@ e real one please trust me i am him.<sub> Disclamer . I am not actually him </su
 WHISPER TO INTERACT IF U ARE FROM PT! I will ignore u otherwise dawg
 <br> im suuuper scared and afraid of everyone btw so im ognna be a little awkward if we int sorry :(( 
 
-fixated on lifesteal. and thats like it. also rhythm games and vocaloid i guess lalalalala
+fixated on lifesteal. also uma musume, prsk/d4dj/bandori, vocaloid, & hc/lifeseries kind of. barely. just here for etho honestly
 <br> DONT ASK ME ABOUT RECENT LIFESTEAL STUFFP LEASE IM SO BEHIND I AM SO BEHIND IM BINGING THE ENTIRITY OF LIFESTEAL WITH MY FRIEND ILL BE CAUGHT UP SOON I SWEAR I PROMISE IM ALSO SUPER OUT OF TOUCH IN GENERAL I ONLY USE PT AND DISCORD AND IM SCARED TO INTERACT WITH PPL TO ME AND LIEK EYAH. also whered all of u come from why r there so many lifesteal fans now thats scary hello 
 <br> we're currently on s4 btw lalalala ill talk and ramble about s1-s4 if u want. (mostly s1 i have an entire essay in my head that s1 mapic is INNOCENT and he had EVERY RIGHT TO ADMIN ABUSE.) also i know like very little about s6 i only watched some of baconns s6 vods just for manewaffles LOL
 
