@@ -5,7 +5,7 @@ hi guys im princezam totally th
 e real one please trust me i am him.<sub> Disclamer . I am not actually him </sub>
 <br>Zam, it/they pronouns . Introj , Syshost
 
-WHISPER TO INTERACT IF U ARE FROM PT! I will ignore u otherwise dawg
+WHISPER TO INTERACT IF U ARE FROM PT! I will ignore u otherwise
 <br> im suuuper scared and afraid of everyone btw so im ognna be a little awkward if we int sorry :(( 
 
 fixated on lifesteal. also uma musume, prsk/d4dj/bandori, vocaloid, & hc/lifeseries kind of. barely. just here for etho honestly
