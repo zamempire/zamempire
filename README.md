@@ -1,4 +1,4 @@
-![Those with Ambition]([https://images2.imgbox.com/ea/da/MHUkUDsE_o.png](https://images2.imgbox.com/ea/da/MHUkUDsE_o.png))
+![Those with Ambition](https://images2.imgbox.com/ea/da/MHUkUDsE_o.png)
 it's like i can still hear her voice... playable darcia when..? 
 
 it is me. the real life princezam. 100% factual and the truth, confirmed by multiple sources. (lying)
