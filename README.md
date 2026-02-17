@@ -9,7 +9,7 @@ whisper to interact!! i am constantly offtab and doing smth else and will not no
 <br> im suuuper scared and afraid of everyone btw so im gonna be a little awkward if we int even if we're close sorry :((
 
 fixated on lifesteal. and like a lot of things im also into but lifesteals the constant
-<br> despite this being . a soon-to-be 4 year fixation (october 14th 2022). i genuinely cannot tell you what is happening in s5-s7 because i have watched the bare mininum/haven't watched at all
+<br> despite this being . a soon-to-be 4 year fixation (october 14th 2022). i genuinely cannot tell you what is happening in s5-s7 because i have watched the bare mininum/haven't watched at all. i also havent watched uu i should also note. sorry im a fake fan i know. #poser
 <br> i am on early-ish s5 with a friend if you're wondering. i'm at the point where zam betrayed pangi in the roshambogames video where he gets really lonely and depressed if you are wondering
 <br> i <i>have</i> watched some s6 baconn vods but like. only for quickdrop duo so if you asked me anything about that season beyond that i'll just shrug at you. and even then i didn't watch them all cause i got really sad that california girls kicked wemmbu cus i really liked baconn and wemmbu duo
 <br> Literally Haven't watched s7 at all outside of clips
