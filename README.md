@@ -1,6 +1,7 @@
 <img width="2400" height="1700" alt="Disc_Those_with_Ambition" src="https://github.com/user-attachments/assets/1fec1e80-ef6c-48ac-91b5-ac89c7f8299d" />
 it's like i can still hear her voice... playable darcia when..?
-<br>
+
+
 it is me. the real life princezam. 100% factual and the truth, confirmed by multiple sources. (lying)
 <br>Zam/Wemmbu, it/neos pronouns . Introj , Syshost
 
