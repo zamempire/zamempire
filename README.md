@@ -7,7 +7,7 @@ it is me. the real life princezam. 100% factual and the truth, confirmed by mult
 
 whisper to interact!! i am constantly offtab and doing smth else and will not notice you otherwise
 <br> im suuuper scared and afraid of everyone btw so im gonna be a little awkward if we int even if we're close sorry :((
-<br> c+h is OKAY! just make sure 2 send a whisper first i'll probably scoot away otherwise <//3
+<br> c+h is OKAY & ENCOURAGED! just make sure 2 send a whisper first as a heads up cuz i'll probably scoot away otherwise oops
 
 fixated on lifesteal. and like a lot of things im also into but lifesteals the constant
 <br> despite this being . a soon-to-be 4 year fixation (october 14th 2022). i genuinely cannot tell you what is happening in s5-s7 because i have watched the bare mininum/haven't watched at all. i also havent watched uu i should also note. sorry im a fake fan i know. #poser
@@ -18,8 +18,4 @@ fixated on lifesteal. and like a lot of things im also into but lifesteals the c
 
 If That Chief Guy has a million fans, I'm one of them. If That Chief Guy has 5 fans, I'm one of them. If That Chief Guy has 1 fan, that one is me. If That Chief Guy has no fans, I'm no longer alive. If the world is against That Chief Guy I'm against the entire world. Till my last breath, I'll support That Chief Guy.
 
-more about me in strawpage #Lowkey
-<br> if you're LAZY here's my other fandoms:
-<br> MCYT: Rizen SMP , outsiders , outcasts , echocraft , aphmau , pvp/parkour civilization. nations smp but only season 1 #chiffon WATCH CHIEF AND RASPLINS POV OF SEASON 1 OF NATIONS NOWWW!!! aphmau . Ethoslab.
-<br>Gacha Games: Project Sekai, Bandori, D4DJ, Enstars, IdolM@ster, Love Live!, Blue Archive, StellaSora. Uma Musume. Tokyo debunker. Genshin Impact, Revue Starlight, Cookie Run, Re:Stage!, 18trip
-<br>Other Media : Hetalia, Yuruyuri, Vocaloid, The Binding of Isaac/Mewgenics, Touhou, Fear and Hunger, Dandy's world, kemono friends, pokemon, miis/the wii (u).
+more about me in strawpage #Lowkey if u wanna know More that isn't Lifesteal just look there
