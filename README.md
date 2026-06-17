@@ -9,6 +9,8 @@ whisper to interact!! i am constantly offtab and doing smth else and will not no
 <br> im suuuper scared and afraid of everyone btw so im gonna be a little awkward if we int even if we're close sorry :((
 <br> c+h is OKAY & ENCOURAGED! just make sure 2 send a whisper first as a heads up cuz i'll probably scoot away otherwise oops
 
+<a href="https://imgbox.com/y6jwgD20" target="_blank"><img src="https://images2.imgbox.com/b6/2f/y6jwgD20_o.png" alt="image host"/></a>
+
 <p align="center">
 fixated on lifesteal. and like a lot of things im also into but lifesteals the constant
 <br> > despite this being . a soon-to-be 4 year fixation (october 14th 2022). i genuinely cannot tell you what is happening in s5-s7 because i have watched the bare mininum/haven't watched at all. i also havent watched uu i should also note. sorry im a fake fan i know. #poser
