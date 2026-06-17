@@ -20,7 +20,8 @@ fixated on lifesteal. and like a lot of things im also into but lifesteals the c
 <br> PLEASE TALK TO ME ABOUT LIFESTEAL THOUGH I LOVE TALKING ABOUT LIFESTEAL. I got a good amount of early ls trivia/lore up my sleeve that I'd love 2 explain actually 
 
 <p align="center">
-If That Chief Guy has a million fans, I'm one of them. If That Chief Guy has 5 fans, I'm one of them. If That Chief Guy has 1 fan, that one is me. If That Chief Guy has no fans, I'm no longer alive. If the world is against That Chief Guy I'm against the entire world. Till my last breath, I'll support That Chief Guy.
+watch rek & branzy (& chief guys) povs of echocraft. watch reddoons pov of outsiders. watch ClownPierces pov of rizen smp. all of it is important to lifesteal lore/backstory Ok? ok.
+ALSO WATCH RAY JJKAY03'S SEASON 1 OF NATIONS SMP. ESPECIALLY CHIEF AND RASPLINS POVS ON THAT. ITS NOT LS LORE RELEVANT BUT IT IS WHAT GOT ME INTO LIFESTEAL.
 
 <p align="right">
   <i><b>more about me in strawpage Ya</b></i>
