@@ -10,7 +10,7 @@ whisper to interact!! i am constantly offtab and doing smth else and will not no
 
 fixated on lifesteal. and like a lot of things im also into but lifesteals the constant
 <br> despite this being . a soon-to-be 4 year fixation (october 14th 2022). i genuinely cannot tell you what is happening in s5-s7 because i have watched the bare mininum/haven't watched at all. i also havent watched uu i should also note. sorry im a fake fan i know. #poser
-<br> im at the point where roshambo makws rhe vault in s6
+<br> im at the point where roshambo makes that ender dragon egg vault in s6
 <br> i <i>have</i> watched some s6 baconn vods but like. only for quickdrop duo so if you asked me anything about that season beyond that i'll just shrug at you. and even then i didn't watch them all cause i got really sad that california girls kicked wemmbu cus i really liked baconn and wemmbu duo
 <br> Literally Haven't watched s7/worlds at all outside of clips
 <br> PLEASE TALK TO ME ABOUT LIFESTEAL THOUGH I LOVE TALKING ABOUT LIFESTEAL. I got a good amount of early ls trivia/lore up my sleeve that I'd love 2 explain actually 
