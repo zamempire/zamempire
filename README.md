@@ -1,5 +1,4 @@
-<img width="2400" height="1700" alt="Disc_Those_with_Ambition" src="https://github.com/user-attachments/assets/1fec1e80-ef6c-48ac-91b5-ac89c7f8299d" />
-it's like i can still hear her voice... playable darcia when..?
+<a href="https://imgbox.com/nrUK4TUo" target="_blank"><img src="https://images2.imgbox.com/c7/43/nrUK4TUo_o.png" alt="image host"/></a>
 
 
 it is me. the real life princezam. 100% factual and the truth, confirmed by multiple sources. (lying)
@@ -11,10 +10,11 @@ whisper to interact!! i am constantly offtab and doing smth else and will not no
 
 fixated on lifesteal. and like a lot of things im also into but lifesteals the constant
 <br> despite this being . a soon-to-be 4 year fixation (october 14th 2022). i genuinely cannot tell you what is happening in s5-s7 because i have watched the bare mininum/haven't watched at all. i also havent watched uu i should also note. sorry im a fake fan i know. #poser
-<br> i am on early-ish s5 with a friend if you're wondering. i'm at the point where zam betrayed pangi in the roshambogames video where he gets really lonely and depressed if you are wondering
+<br> im at the point where roshambo makws rhe vault in s6
 <br> i <i>have</i> watched some s6 baconn vods but like. only for quickdrop duo so if you asked me anything about that season beyond that i'll just shrug at you. and even then i didn't watch them all cause i got really sad that california girls kicked wemmbu cus i really liked baconn and wemmbu duo
-<br> Literally Haven't watched s7 at all outside of clips
-<br> I Love love loveee talking about s1-s4. kind of s4 pisses me off but it's really fun to talk about despite that. please talk to me about lifesteal i am really itching to talk about the earlier seasons i need to talk about lifesteal to people or else i get really itchy.
+<br> Literally Haven't watched s7/worlds at all outside of clips
+<br> PLEASE TALK TO ME ABOUT LIFESTEAL THOUGH I LOVE TALKING ABOUT LIFESTEAL. I got a good amount of early ls trivia/lore up my sleeve that I'd love 2 explain actually 
+
 
 If That Chief Guy has a million fans, I'm one of them. If That Chief Guy has 5 fans, I'm one of them. If That Chief Guy has 1 fan, that one is me. If That Chief Guy has no fans, I'm no longer alive. If the world is against That Chief Guy I'm against the entire world. Till my last breath, I'll support That Chief Guy.
 
