@@ -20,6 +20,7 @@ fixated on lifesteal. and like a lot of things im also into but lifesteals the c
 <p align="center">
 If That Chief Guy has a million fans, I'm one of them. If That Chief Guy has 5 fans, I'm one of them. If That Chief Guy has 1 fan, that one is me. If That Chief Guy has no fans, I'm no longer alive. If the world is against That Chief Guy I'm against the entire world. Till my last breath, I'll support That Chief Guy.
 
-more about me in strawpage Ya
+<p align="right">
+  <i><b>more about me in strawpage Ya</b></i>
 
 <a href="https://imgbox.com/f1Otrgkj" target="_blank"><img src="https://images2.imgbox.com/17/9d/f1Otrgkj_o.png" alt="image host"/></a>
