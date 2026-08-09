@@ -27,3 +27,5 @@ ALSO WATCH RAY JJKAY03'S SEASON 1 OF NATIONS SMP. ESPECIALLY CHIEF AND RASPLINS 
   <i><b>more about me in strawpage Ya</b></i>
 
 <a href="https://imgbox.com/f1Otrgkj" target="_blank"><img src="https://images2.imgbox.com/17/9d/f1Otrgkj_o.png" alt="image host"/></a>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=7fh3hce8j7a8x4y9r5dvgy89y&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
